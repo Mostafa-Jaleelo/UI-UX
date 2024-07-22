@@ -1,0 +1,5 @@
+![iPhone 13, 12 Pro Max – 1](https://github.com/user-attachments/assets/c551c711-f95f-4d0e-9ea5-dddb356b96f8)
+![iPhone 13, 12 Pro Max – 2](https://github.com/user-attachments/assets/70f808de-7cbf-4b2e-a592-3b9f69c50f5f)
+![iPhone 13, 12 Pro Max – 3](https://github.com/user-attachments/assets/65b35846-4f62-4d69-ac4c-9e7b60de6032)
+[1.pdf](https://github.com/user-attachments/files/16339406/1.pdf)
+[2.pdf](https://github.com/user-attachments/files/16339407/2.pdf)
